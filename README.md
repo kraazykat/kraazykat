@@ -1,16 +1,13 @@
-## Hi there 👋
+#1 Connor/RK800 fan
+---------
+Connor fictkin, usually in that headspace !
 
-<!--
-**kraazykat/kraazykat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+It/He pronouns
 
-Here are some ideas to get you started:
+<img width="640" height="621" alt="image" src="https://github.com/user-attachments/assets/8d81c771-601a-4f47-886f-a40a6ff3ab1a" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Fictionkin, yumeshipper. Doubles for both dniuf. 
+
+please check https://pronouns.cc/@Kraazykat
+for more info ! 
