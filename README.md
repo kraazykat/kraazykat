@@ -2,6 +2,9 @@
 ---------
 Connor fictkin, usually in that headspace !
 
+![](https://komarev.com/ghpvc/?username=YOUR-GITHUB-USERNAME)
+
+
 It/He pronouns
 
 <img width="640" height="621" alt="image" src="https://github.com/user-attachments/assets/8d81c771-601a-4f47-886f-a40a6ff3ab1a" />
