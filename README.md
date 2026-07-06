@@ -2,7 +2,7 @@
 ---------
 Connor fictkin, usually in that headspace !
 
-![](https://komarev.com/ghpvc/?username=YOUR-GITHUB-USERNAME)
+![](https://komarev.com/ghpvc/?kraazykat)
 
 
 It/He pronouns
