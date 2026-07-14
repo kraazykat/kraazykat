@@ -1,6 +1,6 @@
 #1 Connor/RK800 fan
 ---------
-Connor fictkin, usually in that headspace !
+
 
 ![](https://komarev.com/ghpvc/?username=kraazykat)   
 
