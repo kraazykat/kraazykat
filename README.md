@@ -15,7 +15,8 @@ Connor fictkin, usually in that headspace !
 
 It/He pronouns
 
-<img width="616" height="487" alt="image" src="https://github.com/user-attachments/assets/e6af0f03-5dff-4c16-98c6-c51e9cf8ab1d" />
+<img width="584" height="900" alt="image" src="https://github.com/user-attachments/assets/9959e15c-0902-40e8-bebc-e0c2631ff9b8" />
+
 
 
 
