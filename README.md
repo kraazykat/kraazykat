@@ -1,6 +1,8 @@
 #1 Connor/RK800 fan
 ---------
 
+https://artfight.net/~kraazykat 
+
 
 ![](https://komarev.com/ghpvc/?username=kraazykat)   
 
