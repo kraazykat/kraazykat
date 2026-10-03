@@ -4,6 +4,9 @@
 
 
 
+![](https://komarev.com/ghpvc/?username=kraazykat&color=yellow&label=Backrooms+Explorers)   
+
+
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31wncjsqcilp3oug655ufuwckodq&cover_image=true&theme=spotify-embed&show_offline=true&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=f7f976&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
