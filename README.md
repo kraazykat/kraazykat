@@ -17,7 +17,7 @@
 
 
 
-![](https://komarev.com/ghpvc/?username=kraazykat&color=black&label=Ghosts)   
+![](https://komarev.com/ghpvc/?username=kraazykat&color=yellow&label=Ghosts)   
 
 
 
